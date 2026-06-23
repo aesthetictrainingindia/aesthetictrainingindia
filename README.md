@@ -1,4 +1,25 @@
 # Aesthetic Training India
+[Clinical Cosmetology Course](https://aesthetictrainingindia.com/pg-diploma-clinical-cosmetology/)
+
+[PG Diploma in Clinical Cosmetology](https://aesthetictrainingindia.com/pg-diploma-clinical-cosmetology/)
+
+[Clinical Diet & Nutrition Course](https://aesthetictrainingindia.com/diploma-in-clinical-diet-nutrition/)
+
+[Diploma in Clinical Diet & Nutrition](https://aesthetictrainingindia.com/diploma-in-clinical-diet-nutrition/)
+
+[Trichology Certification Course](https://aesthetictrainingindia.com/certification-in-trichology/)
+
+[Certification in Trichology](https://aesthetictrainingindia.com/certification-in-trichology/)
+
+[Permanent Makeup Master Course](https://aesthetictrainingindia.com/permanent-makeup-master-course/)
+
+[PMU Training Course](https://aesthetictrainingindia.com/permanent-makeup-master-course/)
+
+[Advanced Aesthetics Diploma Program](https://aesthetictrainingindia.com/advanced-aesthetics-diploma-program/)
+
+[Advanced Aesthetic Medicine Training](https://aesthetictrainingindia.com/advanced-aesthetics-diploma-program/)
+
+[Aesthetic Training India](https://aesthetictrainingindia.com/)
 
 Aesthetic Training India is a professional institute offering industry-oriented education and practical training in Clinical Cosmetology, Clinical Diet & Nutrition, Trichology, Permanent Makeup, and Advanced Aesthetics.
 
@@ -124,25 +145,6 @@ Advanced Aesthetics
 
 	[Clinical Cosmetology Course](https://aesthetictrainingindia.com/pg-diploma-clinical-cosmetology/)
 
-[PG Diploma in Clinical Cosmetology](https://aesthetictrainingindia.com/pg-diploma-clinical-cosmetology/)
-
-[Clinical Diet & Nutrition Course](https://aesthetictrainingindia.com/diploma-in-clinical-diet-nutrition/)
-
-[Diploma in Clinical Diet & Nutrition](https://aesthetictrainingindia.com/diploma-in-clinical-diet-nutrition/)
-
-[Trichology Certification Course](https://aesthetictrainingindia.com/certification-in-trichology/)
-
-[Certification in Trichology](https://aesthetictrainingindia.com/certification-in-trichology/)
-
-[Permanent Makeup Master Course](https://aesthetictrainingindia.com/permanent-makeup-master-course/)
-
-[PMU Training Course](https://aesthetictrainingindia.com/permanent-makeup-master-course/)
-
-[Advanced Aesthetics Diploma Program](https://aesthetictrainingindia.com/advanced-aesthetics-diploma-program/)
-
-[Advanced Aesthetic Medicine Training](https://aesthetictrainingindia.com/advanced-aesthetics-diploma-program/)
-
-[Aesthetic Training India](https://aesthetictrainingindia.com/)
 
 # Aesthetic Training India
 
